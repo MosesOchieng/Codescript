@@ -1,4 +1,4 @@
-Hey there ! :vampire_man:
+Hey there ! :vampire_man,
 
 I'm , a Software Engineer and Full stack developer with a passion for Blockchain development, Web2 applications and Mobile applications, Innovator & Founder .
 Find out more about me and feel free to connect with me here:
